@@ -111,15 +111,14 @@ A future Constitution of a Living World may build upon these foundations while d
 
 ---
 
-## Working Assessment
+## Key Contribution
 
-Ethical Vision: 9.5 / 10
+The Earth Charter establishes life itself as a central ethical concern of civilization.
 
-Legal Foundation: 6.5 / 10
+Its greatest contribution is the recognition that humanity is part of a larger community of life and holds responsibilities that extend beyond national, political, and economic interests.
 
-Historical Importance: 10 / 10
+It provides one of the strongest moral foundations for thinking about responsibility toward life, nature, and future generations.
 
-Overall Contribution: Foundational
 
 ## Sources
                                                 

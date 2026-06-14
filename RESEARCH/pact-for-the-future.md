@@ -163,19 +163,13 @@ The remaining question is whether responsibility can become a foundational princ
 
 ---
 
-## Working Assessment
+## Key Contribution
 
-Political Realism: 10 / 10
+The Pact for the Future demonstrates that many ideas once considered visionary are entering mainstream international discussion.
 
-Ethical Ambition: 7 / 10
+Its greatest contribution is the recognition that future generations, sustainability, technological risks, and global cooperation are now legitimate concerns of contemporary governance.
 
-Legal Strength: 6.5 / 10
-
-Relevance to Contemporary Challenges: 10 / 10
-
-Historical Importance: 8.5 / 10
-
-Overall Contribution: Bridge Between Vision and Political Reality
+It serves as a bridge between ethical aspirations and political reality.
 
 ## Sources
 

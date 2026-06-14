@@ -156,19 +156,13 @@ The question becomes:
 
 ---
 
-## Working Assessment
+## Key Contribution
 
-Ethical Vision: 10 / 10
+Future Generations extends responsibility across time.
 
-Relevance to a Constitution of a Living World: 10 / 10
+Its greatest contribution is the recognition that justice applies not only among people living today but also between present and future generations.
 
-Legal Foundation: 8.5 / 10
-
-Practical Applicability: 7.5 / 10
-
-Historical Importance: 9 / 10
-
-Overall Contribution: Foundational Framework for Temporal Responsibility
+It introduces the idea that long-term consequences should become a central consideration in human decision-making.
 
 ## Sources
 

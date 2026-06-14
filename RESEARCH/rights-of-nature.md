@@ -178,19 +178,13 @@ Institutions may be required to represent interests that cannot speak for themse
 
 ---
 
-## Working Assessment
+## Key Contribution
 
-Ethical Vision: 9.5 / 10
+Rights of Nature challenges the assumption that only humans possess interests worthy of legal protection.
 
-Legal Innovation: 9 / 10
+Its greatest contribution is the recognition that ecosystems and living systems may possess intrinsic value independent of their usefulness to humanity.
 
-Practical Applicability: 7 / 10
-
-Conceptual Clarity: 7.5 / 10
-
-Historical Importance: 9 / 10
-
-Overall Contribution: Foundational Expansion of Legal Perspective
+It expands the moral and legal horizon of civilization beyond human-centered thinking.
 
 ## Sources
 

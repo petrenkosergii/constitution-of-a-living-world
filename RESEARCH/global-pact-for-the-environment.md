@@ -149,17 +149,14 @@ People have a right to understand decisions that affect the conditions of life.
 
 ---
 
-## Working Assessment
+## Key Contribution
 
-Ethical Vision: 8 / 10
+The Global Pact demonstrates how responsibility can be translated into legal principles.
 
-Legal Foundation: 9 / 10
+Its greatest contribution is the recognition that rights alone are insufficient; duties, prevention, transparency, and accountability are equally necessary.
 
-Practical Applicability: 9 / 10
+It provides a practical legal framework for addressing environmental harm before it becomes irreversible.
 
-Historical Importance: 8.5 / 10
-
-Overall Contribution: Foundational Legal Framework
 
 ## Sources
 

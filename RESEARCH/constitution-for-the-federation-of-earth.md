@@ -155,19 +155,14 @@ Global responsibility does not necessarily require centralized global power.
 
 ---
 
-## Working Assessment
+## Key Contribution
 
-Visionary Ambition: 10 / 10
+The Constitution for the Federation of Earth recognizes that global responsibilities require global mechanisms.
 
-Institutional Design: 8.5 / 10
+Its greatest contribution is the understanding that shared challenges may require institutions capable of acting beyond national boundaries.
 
-Political Realism: 5 / 10
+At the same time, it highlights the risks associated with excessive concentration of power and the importance of balancing accountability with decentralization.
 
-Practical Feasibility: 4.5 / 10
-
-Historical Importance: 8 / 10
-
-Overall Contribution: Foundational Governance Framework
 
 ## Sources
 
