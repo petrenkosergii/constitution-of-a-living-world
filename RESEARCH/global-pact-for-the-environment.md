@@ -160,3 +160,11 @@ Practical Applicability: 9 / 10
 Historical Importance: 8.5 / 10
 
 Overall Contribution: Foundational Legal Framework
+
+## Sources
+
+Primary Source:
+https://globalpactenvironment.org/en/the-pact/
+
+Project Overview:
+https://globalpactenvironment.org/

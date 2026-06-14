@@ -176,3 +176,11 @@ Relevance to Contemporary Challenges: 10 / 10
 Historical Importance: 8.5 / 10
 
 Overall Contribution: Bridge Between Vision and Political Reality
+
+## Sources
+
+United Nations:
+https://www.un.org/en/summit-of-the-future/pact-for-the-future
+
+Official Documents:
+https://documents.un.org/

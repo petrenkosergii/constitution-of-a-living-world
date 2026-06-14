@@ -191,3 +191,8 @@ Conceptual Clarity: 7.5 / 10
 Historical Importance: 9 / 10
 
 Overall Contribution: Foundational Expansion of Legal Perspective
+
+## Sources
+
+Global Alliance for the Rights of Nature:
+https://www.garn.org/

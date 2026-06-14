@@ -169,3 +169,9 @@ Practical Applicability: 7.5 / 10
 Historical Importance: 9 / 10
 
 Overall Contribution: Foundational Framework for Temporal Responsibility
+
+## Sources
+
+Maastricht Principles on the Human Rights of Future Generations
+
+https://www.ciel.org/wp-content/uploads/2023/06/Maastricht-Principles-Light_Jun12.pdf

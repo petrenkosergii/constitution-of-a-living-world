@@ -168,3 +168,11 @@ Practical Feasibility: 4.5 / 10
 Historical Importance: 8 / 10
 
 Overall Contribution: Foundational Governance Framework
+
+## Sources
+
+Official Website:
+https://earthconstitution.world/
+
+Constitution Text:
+https://earthconstitution.world/text-of-the-earth-constitution/

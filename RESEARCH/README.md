@@ -34,3 +34,14 @@ The goal is to learn from existing ideas, identify their strengths and limitatio
 ## Core Question
 
 Can civilization be built not only on rights and freedoms, but also on responsibility for the traces we leave behind?
+
+## Methodology
+
+Each research document contains:
+
+- A summary of the source.
+- Key ideas and principles.
+- Strengths and limitations.
+- Lessons relevant to a Constitution of a Living World.
+
+The goal is not to reproduce these documents, but to understand what they contribute and where unanswered questions remain.

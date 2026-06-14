@@ -120,3 +120,11 @@ Legal Foundation: 6.5 / 10
 Historical Importance: 10 / 10
 
 Overall Contribution: Foundational
+
+## Sources
+                                                
+Primary Source:
+https://earthcharter.org/read-the-earth-charter/
+
+Official Organization:
+https://earthcharter.org/
